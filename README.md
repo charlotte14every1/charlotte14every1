@@ -1,7 +1,9 @@
-![image](https://github.com/user-attachments/assets/cb564033-411c-42ca-b163-e4b164c6c49c)
+![image](https://files.catbox.moe/jcrtd5.jpeg)
 
 
-$$\color{#F4BEE2}charlotte♡$$
-$$\color{#EEA6D6}she/he$$
+$$\color{B4E779}peoplesaidineedatherapy,butinstead,imgoingtothrowanasianbaby$$ 
+
+$$\color{#52574C}charlotte♡$$
+$$\color{#B5BCAD}she/he$$
 
 $$view my strawpage to gtkm!>⩊<$$
