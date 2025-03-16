@@ -1,7 +1,7 @@
-![image](https://files.catbox.moe/jcrtd5.jpeg)
+![image](https://files.catbox.moe/w8c5ht.jpeg)
 
 
-$$\color{B4E779}peoplesaidineedatherapy,butinstead,imgoingtothrowanasianbaby$$ 
+
 
 $$\color{#52574C}charlotte♡$$
 $$\color{#B5BCAD}she/he$$
